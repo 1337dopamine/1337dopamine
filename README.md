@@ -1,2 +1,2 @@
 # dopamine.
-time is extreamly valuable, yet i prefer to waste it 
+time is extremely valuable, yet i prefer to waste it 
